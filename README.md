@@ -1,2 +1,2 @@
-Software developer. Struggling plant-mom.
+Software developer
 
